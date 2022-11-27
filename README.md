@@ -6,5 +6,5 @@ Feel free to check my content on YouTube: https://youtube.com/@mitul_shahriyar
 I will use the tag "#365DaysOfDevOps_DSA_Cloud_ML_AI_DL_NLP" on LinkedIn & Twitter.
 
 Keep me in your prayers 
-[2:53 PM]
+
 #365DaysOfDevOps_DSA_Cloud_ML_AI_DL_NLP
